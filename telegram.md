@@ -7,6 +7,91 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 02:32
+---
+
+## VahidOOnLine — post 240877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با خبرنگاران گفت: «من با اسکات بسنت، وزیر خزانه‌داری ایالات متحده آمریکا و هاوارد لوتنیک،  وزیر بازرگانی تماس گرفتم و همه آن‌ها را به دفترم فراخواندم. گفتم ما قصد داریم یک سفر کوتاه به خاورمیانه داشته باشیم و با ایران مواجه شویم، زیرا آن‌ها به شدت به دنبال دستیابی به سلاح هسته‌ای هستند و تنها دلیلشان برای داشتن آن، استفاده از آن است.»
+رئیس‌جمهوری آمریکا در ادامه افزود: «من گفتم از اینکه مجبورم این کار را انجام دهم متنفرم، چون اوضاع ما بسیار خوب پیش می‌رود؛ اما این مهم‌ترین کاری است که می‌توانیم انجام دهیم. ما نمی‌توانیم اجازه دهیم ایران به سلاح هسته‌ای دست یابد، بنابراین این کار را انجام دادیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11617
+
+
+
+
+## FoxNewsTwitter — post 341911
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341911_1779145371.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+REPORTER: "Can you speak a little bit about your, post on Truth Social on Iran? And what was the decision ... why you didn't attack... ?"
+
+PRESIDENT TRUMP: "Well, other countries have come to me and they've said... We were getting ready to do a very major attack tomorrow. I've put it off for a little while, hopefully, maybe forever, but possibly for a little while, because we've had, very big discussions with Iran and we'll see what they amount to."
+
+"I was asked by Saudi Arabia, Qatar, UAE and some others if we could put it off for 2 or 3 days, a short period of time, because they think that they are getting very close to making a deal. And if we can do that where there's no nuclear weapon going into the hands of Iran, I think and if they're satisfied, we will be probably satisfied."
+</div>
+
+## FoxNewsTwitter — post 341910
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341910_1779145374.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Former LAPD Detective Mark Fuhrman, who discovered the bloody glove in the 1995 O.J. Simpson murder case and was convicted of lying on the witness stand, has died at the age of 74.
+</div>
+
+## pm_afshaa — post 91008
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91008_1779145374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل:
+ترامپ به اسرائیل اطلاع داد که تاخیر در حمله به ایران تنها دو تا سه روزه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 218102
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218102_1779145375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️افزایش کودک‌همسری و خشونت علیه زنان در افغانستان؛ به حاشیه‌رفتن حقوق زنان در سایه تنش‌های ایران
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14462
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14462_1779145376.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪️ شبتون بخیر 🫶
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 02:22
 ---
 
